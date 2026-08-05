@@ -1,1 +1,0 @@
-# missao-inteligencia-artificial
